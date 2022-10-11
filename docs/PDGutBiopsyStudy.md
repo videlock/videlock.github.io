@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "PDGutBiopsyStudy"
+title: "PD Gut Biopsy Study"
 permalink: /PDGutBiopsyStudy
 ---
 
