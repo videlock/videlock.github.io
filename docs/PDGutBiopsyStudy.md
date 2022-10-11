@@ -32,15 +32,15 @@ Please be aware that we will not disclose any personal health information, which
 
 If you do not qualify for the study, the answers you provide will be kept without your name or any identifying information for the purpose of documenting how many participants were screened and found to be ineligible for what reasons. If you do qualify and decide to participate by signing the consent form, your answers will be kept within the research record.
 
-If you are interesting in participating or would like to learn more, please call our study coordinator, Melissa Arevalo, at (310) 794-3788 or email PDGutBiopsyStudy@mednet.ucla.edu
+If you are interesting in participating or would like to learn more, please call our study coordinator, Melissa Arevalo, at (310) 794-3788 or email PDGutBiopsyStudy@mednet.ucla.edu.
 
 If you choose to respond by email, do not include any sensitive health information, as the confidentiality of emails cannot be guaranteed.
 
 
-To be contacted about additional opportunities to participate in clinical research related to the gut in Parkinson’s Disease and the gut-brain axis, follow this link: https://www.uclahealth.org/gastro/research/ResearchRegistry-PD/
+To be contacted about additional opportunities to participate in clinical research related to the gut in Parkinson’s Disease and the gut-brain axis, follow this link: [https://www.uclahealth.org/gastro/research/ResearchRegistry-PD/](https://www.uclahealth.org/gastro/research/ResearchRegistry-PD/)
 
 
-**Guo Lab Website**: https://guolab.wordpress.com/
+**Guo Lab Website**: [https://guolab.wordpress.com/](https://guolab.wordpress.com/)
 
-**Videlock Lab**: https://www.uclahealth.org/divisions/gastro/research/labs-and-programs/videlock-laboratory
+**Videlock Lab**: [https://www.uclahealth.org/divisions/gastro/research/labs-and-programs/videlock-laboratory](https://www.uclahealth.org/divisions/gastro/research/labs-and-programs/videlock-laboratory)
 
